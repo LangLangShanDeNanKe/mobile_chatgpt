@@ -14,6 +14,6 @@
 
 ## ⬇️下载地址2
 
-[ChatOn](https://wwmd.lanzoum.com/iB2Rf0r2l94j)密码:d6de
+[ChatOn](https://wwmd.lanzoum.com/iB2Rf0r2l94j) 🔐密码:d6de
 
-[ChatPT](https://wwmd.lanzoum.com/ihrLj0r2l7ha)密码:75br
+[ChatPT](https://wwmd.lanzoum.com/ihrLj0r2l7ha) 🔐密码:75br
